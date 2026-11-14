@@ -22,5 +22,3 @@ RADO Engine Parts serves automotive aftermarket and industry requirements with a
 
 **Engine Valve Products:**  
 https://www.radoengineparts.com/engine-valve-manufacturer/
-
-**Tagline:** Precision Engineering. Trusted Performance.
